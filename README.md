@@ -1,16 +1,32 @@
-### Hi there 👋
+### 
 
 <!--
-**maxiafalcon/Maxiafalcon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**maxiafalcon/Maxiafalcon** is a ✨ _special_ ✨ .
 
-Here are some ideas to get you started:
+Cantautora Madrileña / creadora de contenido / Mi propia utopia 🎤🦄
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Me considero una artista ecléctica y multifacética. 
+No soy  excéntrica 💵 si algo "alocada". 
+Mi objetivo siempre está  en ser yo misma  mejorando cada día mis capacidades. 
+Se que tal vez es mucho " mejor" seguir la corriente de las nuevas tendencias... 😎   
+pero no me gustaría ver que caemos en varias décadas de bucle. 😕 
+¿que será lo nuevo? 
+Antes de creer en mí  y entender que  todos somos un ser único e irrepetible
+tuve lógicamente influencias que por supuesto admiro "mamá make you rock "  ,
+"opps" todos tenemos algo ahí marcado...
+por eso sigo en  constante evolución  🐒😂
+
+BIOGRAFIA✍
+Comencé a escribir letras de canciones al rededor de los ocho años.👧
+Mi primera actuación como artista invitada fue en el templo de la música 
+( Sala Galileo Madrid 2007 ) 
+Trabajé en orquestas como vocalista de varios registros y géneros. 
+LP Maxia Falcón (Disponible en todas las plataformas )
+
+CONTACTO ✉
+Gmail : falconmaxia@gmail.com
+REDES 🌎
+Instangram : Maxiafalcon
+Facebook. :Maxiafalcon 
+Tik tok : maxiafalco
+
